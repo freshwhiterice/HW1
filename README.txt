@@ -1,3 +1,0 @@
-Peter Tatsuda
-
-Minnesota Twins
